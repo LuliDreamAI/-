@@ -1,7 +1,7 @@
  # 2026年教学成果奖
 - [《工艺美术教学中学生创造性思维能力的培养》论文](http://xueshu.qikan.com.cn/preview/1/74/754040 "鼠标悬停提示文字")
 - [《烙画艺术在当代文化市场的传播研究》论文](https://xueshu.baidu.com/ndscholar/browse/detail?paperid=1k7n0jn0ed6t0gh05u7q0r30n4467105 "鼠标悬停提示文字")
-- [方胜,张佳齐.安徽非物质文化遗产的时空分布特征及其影响因素[J].安徽理工大学学报(社会科学版),2023,25(02):29-36.](目标网址 "鼠标悬停提示文字")
+- [方胜,张佳齐.安徽非物质文化遗产的时空分布特征及其影响因素[J].安徽理工大学学报(社会科学版),2023,25(02):29-36.](https://kns.cnki.net/kcms2/article/abstract?v=H26UkN0bSyTjLrs8VcJ2FfSfnNCF4TNAknyOWzqPxv6zqyXSp44JfJMXK8oZMQTCtusMovkhyHrBR4_EygzaATYW4jPx_bPAH9VoZgKvsLL_cnJBnxNcUiqSrFuRF4gyNMuwdxP0AcJ8hr1WkO_G1VctCiZ2yjoiUTnkq4HCfAqXD8BINmiOnw==&uniplatform=NZKPT&language=CHS目标网址 "鼠标悬停提示文字")
 - [链接显示文字](目标网址 "鼠标悬停提示文字")
 - [链接显示文字](目标网址 "鼠标悬停提示文字")
 - [链接显示文字](目标网址 "鼠标悬停提示文字")
