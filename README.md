@@ -8,7 +8,7 @@
 - [郑红伟.浅谈烙画创作的技巧[J].现代职业教育,2016,(15):157.](https://kns.cnki.net/kcms2/article/abstract?v=H26UkN0bSyRrhaaWjTjBwRXXEoLJLKnh3OH0EQnYvgnadAnaWRVDSqGchDST2IBSR8tkkq29ziHmc1L54vIK7sruZTa9g-_sw1gqDCAw1xUT_AT_ddPoR9pit7sQH8znKi8snrfEqE5otFBIWsqgXTdce28cMgeV9eZR9T2-DhZ-gWPmo7Y2Sw==&uniplatform=NZKPT&language=CHS "鼠标悬停提示文字")
  ## 学生成长成才
 
-<img width="758" height="640" alt="image" src="https://github.com/user-attachments/assets/3d31f336-a0c7-430f-8060-51175ef6201f" />
+<img width="758" height="640" alt="image" src="https://github.com/user-attachments/assets/3d31f336-a0c7-430f-8060-51175ef6201f" /><br>
 一腔热爱，结缘烙画：偶遇烙画技艺，自此倾心坚守。<br>
 一份信念，紧跟时代：依托非遗扶持政策，致力古法焕新。<br>
 一枚金奖，初露锋芒：《守护神》斩获省级一等奖，获得业界肯定。<br>
